@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-HYMNES, OR SACRED SONGS, wherein the right vse of Poësie may be espied.Be Alexander Hume.WHEREVNTO A
+
 1. The contents of this booke.
 
 1. TO THE FAITHFVLL AND VERTVOVS Ladie, Elizabeth Mal-vill, Ladie Cumrie, grace, mercie, and peace, from God the father, and from our Lord Iesus Christ.
